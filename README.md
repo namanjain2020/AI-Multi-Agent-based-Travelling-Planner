@@ -253,8 +253,8 @@ Comprehensive cost breakdown with saving opportunities.
 
 **Naman Jain**
 
-B.Tech Graduate
-Indian Institute of Technology Jodhpur
+* B.Tech Graduate
+* Indian Institute of Technology Jodhpur (IIT-Jodhpur)
 
 Interested in:
 
